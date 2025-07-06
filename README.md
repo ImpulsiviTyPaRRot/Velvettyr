@@ -13,7 +13,7 @@ I also enjoy teasing / kinda bullying my close friends, so I guess that's a way 
 
    https://cautionv.straw.page
 
-  _Idk what to say anymore so take a list of my fav characthersc:_
+  _Idk what to say anymore so take a list of my fav characthers/content creators:_
 
      ImpulseSV, SkizzLeman, Grian, GeminiTay, PearlescentMoon, GoodTimesWithScar, TangoTek, ZedaphPlays, XisumaVoid, SmallishBeans, iJevin, BadBoyHalo, Skeppy, Parrotx2, Wifies, Orb, Skynix, Sprout, Astro, 007n7, Elliot, Guest1337, Taph, Chance, Guest666, John & Jane Doe, CoolKid, Athena, Polities, Telemachus, Tiresias, Jay Walker, The whole TADC cast except Caine and Bubble, Gumball,Darwin & Anais Watterson, SilentSaltCookie, DarkCocoaCookie, Bonnie...
 
