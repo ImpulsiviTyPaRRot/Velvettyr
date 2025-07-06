@@ -2,7 +2,7 @@
 
  Hai, I'm Ghost or Imp, or u can call me other stuff too, as long as it's family friendly!
 
-  You can c+h and int, I like more when ppl whisper, also alert me when u wanna cudd! _(I might walk away if you don't)_ I do enjoy company, though please, don't int when I'm w friends !
+  You can c+h and int, I like more when ppl whisper, also alert me when u wanna cudd! _(I might walk away if you don't)_ I do enjoy company, though please, don't int when I'm w friends ! And if you wanna cov me, tell me, I usually don't like being cov if it's not a friend. If I sais yes, please, don't cov my face ^-^
 
 I have a hard time w ppl I don't know, so have patience "^v^
  I am also a minor, don't make love jokes or any sexual mentions if we aren't close friends, _trust doesn't come easy, and it's even harder to achieve when you don't respect those around you._
