@@ -7,7 +7,7 @@
 I have a hard time w ppl I don't know, so have patience "^v^
  I am also a minor, don't make love jokes or any sexual mentions if we aren't close friends, _trust doesn't come easy, and it's even harder to achieve when you don't respect those around you._
 
-I also enjoy teasing / kinda bullying my close friends, so I guess that's a way u know I think you r cool and stuff :3
+I also enjoy teasing / kinda bullying my close friends, so I guess that's a way u know I think you r cool and stuff :3 . Also I'd appreciate if you would never int w me when I am on DNI, I never am _(actually was once-)_ on DNI unless I am extremely upset, u mostly will find me on Dniuf _(Do not interact unless friend)_ or wh2i _(Whisper to interact)_
 
    I am in a good amount of fandoms, you can see them on my strawpage:
 
