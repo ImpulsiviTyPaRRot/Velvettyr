@@ -7,7 +7,7 @@
 I have a hard time w ppl I don't know, so have patience "^v^
  I am also a minor, don't make love jokes or any sexual mentions if we aren't close friends, _trust doesn't come easy, and it's even harder to achieve when you don't respect those around you._
 
-   I am in a good amount for fandoms, you can see them on my strawpage:
+   I am in a good amount of fandoms, you can see them on my strawpage:
 
    https://cautionv.straw.page
 
