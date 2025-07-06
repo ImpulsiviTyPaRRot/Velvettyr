@@ -13,4 +13,6 @@ I have a hard time w ppl I don't know, so have patience "^v^
 
   _Idk what to say anymore so take a list of my fav characthersc:_
 
-     ImpulseSV, SkizzLeman, Grian, GeminiTay, PearlescentMoon, GoodTimesWithScar, TangoTek, ZedaphPlays, XisumaVoid, SmallishBeans, iJevin, BadBoyHalo, Skeppy, Parrotx2, Wifies, Orb, Skynix, Sprout, Astro, 007n7, Elliot, Guest1337, Taph, Chance, Guest666, John & Jane Doe, CoolKid, Athena, Polities, Telemachus, Jay Walker, The whole TADC cast except Caine and Bubble, 
+     ImpulseSV, SkizzLeman, Grian, GeminiTay, PearlescentMoon, GoodTimesWithScar, TangoTek, ZedaphPlays, XisumaVoid, SmallishBeans, iJevin, BadBoyHalo, Skeppy, Parrotx2, Wifies, Orb, Skynix, Sprout, Astro, 007n7, Elliot, Guest1337, Taph, Chance, Guest666, John & Jane Doe, CoolKid, Athena, Polities, Telemachus, Tiresias, Jay Walker, The whole TADC cast except Caine and Bubble, Gumball,Darwin & Anais Watterson, SilentSaltCookie, DarkCocoaCookie, Bonnie...
+
+ There are prob more but I don't remember. 
