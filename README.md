@@ -11,7 +11,7 @@ I have a hard time w ppl I don't know, so have patience "^v^
 
   There's a chance I might leave (with a warning usually) if I see someone that I find comf in _(ex: online family)_
 
-I also enjoy teasing / kinda bullying my close friends, so I guess that's a way u know I think you r cool and stuff :3 . Also I'd appreciate if you would never int w me when I am on DNI, I never am _(actually was once-)_ on DNI unless I am extremely upset, u mostly will find me on Dniuf _(Do not interact unless friend)_ or wh2i _(Whisper to interact)_
+I also enjoy teasing / kinda bullying my close friends, so I guess that's a way u know I think you r cool and stuff :3 . _ALSO NICKNAMES! (I give nicknames to close ppl)_ Also I'd appreciate if you would never int w me when I am on DNI, I never am _(actually was once-)_ on DNI unless I am extremely upset, u mostly will find me on Dniuf _(Do not interact unless friend)_ or wh2i _(Whisper to interact)_
 
  I am not native English, I may not understand everything u say and I'll most likely be silent or give you a short answer as I am 2 anxios 2 ask what u meant !
 
