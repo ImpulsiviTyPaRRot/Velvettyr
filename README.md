@@ -15,10 +15,6 @@ I also enjoy teasing / kinda bullying my close friends, so I guess that's a way 
 
  I am not native English, I may not understand everything u say and I'll most likely be silent or give you a short answer as I am 2 anxios 2 ask what u meant !
 
-   I am in a good amount of fandoms, you can see them on my strawpage:
-
-   https://cautionv.straw.page
-
   _Idk what to say anymore so take a list of my fav characthers/content creators:_
 
      ImpulseSV, SkizzLeman, Grian, GeminiTay, PearlescentMoon, GoodTimesWithScar, TangoTek, ZedaphPlays, XisumaVoid, SmallishBeans, iJevin, BadBoyHalo, Skeppy, Parrotx2, Wifies, Orb, Skynix, Sprout, Astro, 007n7, Elliot, Guest1337, Taph, Chance, Guest666, John & Jane Doe, CoolKid, Athena, Polities, Telemachus, Tiresias, Jay Walker, The whole TADC cast except Caine and Bubble, Gumball,Darwin & Anais Watterson, SilentSaltCookie, DarkCocoaCookie, Bonnie...
